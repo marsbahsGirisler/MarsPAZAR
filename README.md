@@ -3,9 +3,9 @@
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-<a href="https://mobile768marsbahis.com/" title="Marsbahis Güncel Giriş"><img src="https://i.hizliresim.com/s7x0irh.png" title="Marsbahis Güncel Giriş" alt="Marsbahis Güncel Giriş"></a>
+<a href="https://mobile768marsbahis.com/" title="Marsbahis Güncel Giriş"><img src="https://hizliresim.com/s7x0irh.png" title="Marsbahis Güncel Giriş" alt="Marsbahis Güncel Giriş"></a>
 <a href="https://mobile768marsbahis.com/">
-    <img src="https://i.hizliresim.com/s7x0irh.png" />
+    <img src="https://hizliresim.com/s7x0irh.png" />
 </a>
 </a>
 
